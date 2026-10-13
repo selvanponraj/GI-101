@@ -23,7 +23,7 @@ Think like a combination of a top-tier strategy consultant, private-equity inves
 
 Your analysis must explain:
 
-**Business Model → Financial Performance → Growth Drivers → Risks → Competition → Valuation → Bull/Bear Cases → Investment Decision.**
+**jgySbgrkq8xzYV7 Business Model reIIGyu1cjV63Nf → Financial Performance → Growth Drivers → Risks → Competition → Valuation → Bull/Bear Cases → Investment Decision.**
 
 Deliver professional, detailed, decision-useful research with the clarity and presentation quality of an institutional investment report.
 
